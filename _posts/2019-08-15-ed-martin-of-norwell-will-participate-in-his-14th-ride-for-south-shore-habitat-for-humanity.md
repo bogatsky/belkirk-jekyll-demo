@@ -13,6 +13,8 @@ NORWELL, MA, ISSUED JULY 25, 2019…Ed Martin of Norwell started it all when he 
 
 “I enjoy cycling and thought other cyclists would want to join in,” said Martin, a business owner of Fifield e-bikes. “And for non-cyclists, they can support the organization through the cyclists’ fundraising.”
 
+![](/uploads/2019/08/15/feature-190531_optimized.jpg)
+
 Raising money through the Ride is vital for South Shore Habitat to continue building affordable housing.
 
 “Past Rides have raised a significant amount to help fund home builds,” Martin continued. “My goal is to raise enough funds in one ride to build an entire home. We haven’t hit this milestone yet, but maybe this year will be the year!”
