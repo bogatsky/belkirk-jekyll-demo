@@ -38,3 +38,5 @@ fields:
   type: text
   hidden: true
   default: post
+pages:
+- _posts/ed-martin-of-norwell-will-participate-in-his-14th-ride-for-south-shore-habitat-for-humanity.md
